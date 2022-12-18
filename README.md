@@ -11,7 +11,7 @@
 
 ### Connect with me:
 
-Instagram: akiii.rs
+Instagram: akiii.vs
 Discord: акии#5622
 
 
